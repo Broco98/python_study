@@ -6,6 +6,6 @@ https://www.youtube.com/watch?v=8vjgx7joCqg&list=PLG7te9eYUi7uSFZsBdgv8wfJMAoguM
 
 ## YouTube 댓글을 확인하세요!
 
-위키독스로 종이 책이 없어도 무료로 볼 수 있음<br/>
+위키독스로 종이 책이 없어도 무료로 볼 수 있음!<br/>
 
 강의 PPT 파일도 다운받을 수 있음!
